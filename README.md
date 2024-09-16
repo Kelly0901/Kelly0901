@@ -10,3 +10,6 @@
 Kelly0901/Kelly0901 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+-if u have pinterest, u can follow my account ' Mocha (摩卡咖啡) ' 
+    ^o^ 
